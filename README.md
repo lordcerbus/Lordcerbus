@@ -9,4 +9,4 @@ Vocês podem entrar em contato comigo através das minhas redes sociais ou pelo 
 Facebook: https://www.facebook.com/leony.fonseca.5
 Linkedin: https://www.linkedin.com/in/leony-fonseca-839917b8/
 Instagram: https://www.instagram.com/fonsecaleony/
-Whatsapp: 5532999182852
+Whatsapp: +5532999182852
