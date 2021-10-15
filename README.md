@@ -6,7 +6,10 @@ desafios e objetivos, crescer profissionalmente, freelancer também é de meu ag
 
 Vocês podem entrar em contato comigo através das minhas redes sociais ou pelo meu número pessoal, onde terei prazer em recebe-los!
 
-Facebook: https://www.facebook.com/leony.fonseca.5
-Linkedin: https://www.linkedin.com/in/leony-fonseca-839917b8/
-Instagram: https://www.instagram.com/fonsecaleony/
-Whatsapp: +5532999182852
+Facebook: https://www.facebook.com/leony.fonseca.5;
+
+Linkedin: https://www.linkedin.com/in/leony-fonseca-839917b8/;
+
+Instagram: https://www.instagram.com/fonsecaleony/;
+
+Whatsapp: +5532999182852;
