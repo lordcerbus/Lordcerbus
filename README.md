@@ -12,4 +12,4 @@ Linkedin: https://www.linkedin.com/in/leony-fonseca-839917b8/;
 
 Instagram: https://www.instagram.com/fonsecaleony/;
 
-Whatsapp: +5532999182852;
+Whatsapp: +5532999182852
