@@ -1,4 +1,4 @@
-Sejam bem vindos ao meu repositório, eu sou Leony Junior Neto Constantino da Fonseca, atualmente estou com 23 anos, estou estudando a área de desenvolvimento web focado no front-
+Sejam bem vindos ao meu repositório, eu sou Leony Junior Neto Constantino da Fonseca, estou estudando a área de desenvolvimento web focado no front-
 end que foi a área pela qual me interessei, tenho conhecimentos medianos em html5, css3 e javascript(EC9), por escolha decidi seguir meus estudos focados nessa área por sua 
 amplitude, gosto de poder explorar minha criatividade  e o front me oferece uma ampla gama de opções, como framework de JS eu escolhi seguir o ReactJS, pretendo futuramente me 
 tornar um Dev fullstack, então tenho interesse em colaborar em todo tipo de projeto que envolve este objetivo final, também busco emprego na area de front-end para ter mais 
